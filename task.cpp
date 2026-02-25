@@ -1,0 +1,1 @@
+https://github.com/Abai-University-genAI/project-1-iok251-nuray.git
